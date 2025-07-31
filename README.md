@@ -6,22 +6,23 @@ DNI if: you support drugs, alcohol, or smoking. Also if your a mean person, like
 Anyone can int as long as your not a asshole to me or my friends!
 
 I USUALLY USE THESE POKÉMON SKINS!!!!
-UMBREON
+
+UMBREON⋆｡°✩｡⋆☾☼
 ![1000019357](https://github.com/user-attachments/assets/8cc34501-f9e8-43f1-8502-2f32b6eecb20)
-VAPOREON
+VAPOREON.˚◦○🫧 🛁˚○•
 ![1000019365](https://github.com/user-attachments/assets/b7dd1fdd-8bfd-4123-b717-154be10e6a92)
-LEAFEON
+LEAFEON⋆｡˚🌿•✧˖°🧚🏻｡𖦹⋆🍃✧°.
 ![1000019359](https://github.com/user-attachments/assets/0bfadd98-dac1-4b05-8601-a72a08f2c7f6)
-SLYVEON
+SLYVEON*ੈ💠🌺⸝⸝🏳️‍⚧️⋆
 ![1000019363](https://github.com/user-attachments/assets/179b9363-4501-4160-acab-78a3ec892626)
-JOLTEON
+JOLTEON.𖥔 ݁ ⚡️ ⚡︎ 🌩🦴 ݁ 𖥔.
 ![1000019360](https://github.com/user-attachments/assets/050b610d-4723-4da4-ade0-67027d4f1925)
-ESPEON
+ESPEON⋆ ˚｡✨✋👁️𖦹 ⋆｡°
 ![1000019361](https://github.com/user-attachments/assets/2be848ad-ba83-4aa5-a573-5bd3a95f86c6)
-FLAREON
+FLAREON⊹🔥⋆｡°✩
 ![1000019358](https://github.com/user-attachments/assets/e5121449-862c-44b8-a8ff-c20b3ab5502b)
-GLACEON
+GLACEON･:*:｡ ❆
 ![1000019364](https://github.com/user-attachments/assets/f33ccc9c-9a27-4027-a8ef-9df019ec588f)
-and EEVEE
+and EEVEE*ੈ♡⸝⸝🪐༘⋆
 ![1000019362](https://github.com/user-attachments/assets/f3c216f8-c502-4e48-b56e-4250c4166fdd)
-sometimes I use Slasher and my (cod oc?) 
+sometimes I use Slasher and my (cod oc?)
