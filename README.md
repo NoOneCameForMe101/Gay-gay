@@ -5,6 +5,3 @@ I am a minor..But I read Hentai and look at NSFW in my free time♡ Yes, I do RE
 DNI if: you support drugs, alcohol, or smoking. Also if your a mean person, like genuinely mean and not joking mean
 
 Anyone can int as long as your not a asshole to me or my friends!
-
-
-1000019658
