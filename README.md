@@ -1,7 +1,5 @@
-Hey there...I'm Kaden and often in the COD and Eddsworld Area. You can C+H, whisper 2 int with me!
-Currently school is about to start sadly (August 13th through May 23rd)
-I am a minor..But I read Hentai and look at NSFW in my free time♡ Yes, I do RESPECT WOMEN, they deserve rights. I am a (male) bisexual.
+<img width="600" height="40" alt="1000019685" src="https://github.com/user-attachments/assets/046fbc99-1317-458e-8322-3a57a0af4964" />
+' The water flows freely '
+<img width="600" height="40" alt="1000019685" src="https://github.com/user-attachments/assets/faf89140-6dd9-4630-863f-22cac378b3d0" />
 
-DNI if: you support drugs, alcohol, or smoking. Also if your a mean person, like genuinely mean and not joking mean
-
-Anyone can int as long as your not a asshole to me or my friends!
+DNI list: Throws trash into ocean directly, smoker/drinker supporter, a hater, a asshole in general and not joking meanie
