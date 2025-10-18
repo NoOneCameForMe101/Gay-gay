@@ -8,7 +8,7 @@ DNI if you: Throw trash into ocean directly, smoker/drinker supporter, a hater, 
 But tbh anyone can int as long as your not a asshole! ♡♡
 ![1000019564](https://github.com/user-attachments/assets/577961f8-3fb0-4599-aa9f-143cf162336e)
 
-About me a little: I like sea/ocean life especially jellyfish and seahorse, clown fish, and sharks. I really like Eddsworld also, my favorite is Tord since we have similar qualities. A freaky (male) bisexual, hentai reader and (NO PORNHUB) look NSFW in my free time♡ I promise I'm not as freaky as I say/seem.
+About me a little: I like sea/ocean life especially jellyfish and seahorse, clown fish, and sharks. I really like Eddsworld also, my favorite is Tord since we have similar qualities ig :P A freaky pansexual alien, who is a hentai reader and (NO PORNHUB) look at NSFW in my free time♡ I promise I'm not as freaky as I say/seem.
 ![1000019672](https://github.com/user-attachments/assets/0d411613-341c-4e66-92de-d6d11d4ae956)
 ![1000019673](https://github.com/user-attachments/assets/67e298d3-25b3-4ab9-94aa-6d791a795621)
 
